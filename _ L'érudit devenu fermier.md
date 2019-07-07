@@ -1,0 +1,13 @@
+Un érudit de peu de moyens, comme le sont souvent les gens cette espèce, se découvrit seul héritier de son oncle, qui lui lègua une maison et son poulailler. Quelle chance ! pensa l'homme. La nourriture des poules coûte bien moins que celle des hommes : j'y habiterai, mangerai quelques œufs, et vendrai le reste.
+
+N'ayant jamais vu de poules, il étudia dans ses livres tout ce que la science avait à dire sur ces volatiles : leur anatomie, leurs mœurs, les soins à leur apporter, et il conçut une excellente manière de les élever. Le matin il leur offrait du grain et récoltait les œufs, puis il passait le reste de sa journée à des occupations nobles, et trouva cela un fort bon arrangement.
+
+Mais après un temps, il découvrit qu'elles mangeaient moins, et donnaient moins d'œufs. Il interrogea ses livres, et trouva vite réponse : en certaines saisons les volailles sont moins vives. Cela le rassura.
+
+Mais plus tard, il vit qu'elles mangeaient encore moins, et lui donnaient à peine assez d'œufs pour son propre usage. Il interrogea de nouveau ses livres, et finit par trouver une réponse : pour les stimuler, il acheta un coq avec les derniers sous de l'héritage.
+
+Enfin, un jour, elles ne mangeaient plus rien, et ne pondaient plus d'œufs, et ses livres ne contenaient aucune réponse à ce mystère. Alors qu'il se lamentait, un vieux fermier de passage l'entendit et lui proposa son aide. Peu convaincu qu'un simple fermier puisse connaître la solution, il accepta quand même. Le vieil homme s'en fut dans la basse-cour, et revint aussitôt : tes poules sont mortes, mon ami, et devenues Revenants. Tu n'en tireras rien, à part les revendre pour l'essence.
+
+Mortes ? L'érudit fut estomaqué. Pourquoi mes livres n'ont-ils pas mentionné cela ?
+
+Mentionné que les poules peuvent mourir, mon ami ? Est-il donc besoin d'écrire ce que même les enfants n'ignorent pas ? 
