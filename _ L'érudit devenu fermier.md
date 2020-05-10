@@ -4,7 +4,7 @@ N'ayant jamais vu de poules, il étudia dans ses livres tout ce que la science a
 
 Mais après un temps, il découvrit qu'elles mangeaient moins, et donnaient moins d'œufs. Il interrogea ses livres, et trouva vite réponse : en certaines saisons les volailles sont moins vives. Cela le rassura.
 
-Mais plus tard, il vit qu'elles mangeaient encore moins, et lui donnaient à peine assez d'œufs pour son propre usage. Il interrogea de nouveau ses livres, et finit par trouver une réponse : pour les stimuler, il acheta un coq avec les derniers sous de l'héritage.
+Plus tard encore, il vit qu'elles mangeaient encore moins, et lui donnaient à peine assez d'œufs pour son propre usage. Il interrogea de nouveau ses livres, et finit par trouver une réponse : pour les stimuler, il acheta un coq avec les derniers continentaux de l'héritage.
 
 Enfin, un jour, elles ne mangeaient plus rien, et ne pondaient plus d'œufs, et ses livres ne contenaient aucune réponse à ce mystère. Alors qu'il se lamentait, un vieux fermier de passage l'entendit et lui proposa son aide. Peu convaincu qu'un simple fermier puisse connaître la solution, il accepta quand même. Le vieil homme s'en fut dans la basse-cour, et revint aussitôt : tes poules sont mortes, mon ami, et devenues Revenants. Tu n'en tireras rien, à part les revendre pour l'essence.
 
