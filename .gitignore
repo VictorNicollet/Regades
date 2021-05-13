@@ -1,0 +1,6 @@
+*.html
+*.tmp
+.vscode
+*_files/
+bin/
+obj/

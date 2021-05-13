@@ -1,0 +1,11 @@
+<Project Sdk="Microsoft.NET.Sdk">
+  <PropertyGroup>
+    <Language>C#</Language>
+    <TargetFramework>net5.0</TargetFramework>
+    <EnableDefaultCompileItems>false</EnableDefaultCompileItems>
+    <OutputType>Exe</OutputType>
+  </PropertyGroup>
+    <ItemGroup>
+    <Compile Include="Concat.cs"/>
+  </ItemGroup>
+</Project>
